@@ -6,7 +6,7 @@
 - 🔭 I’m currently working in a start-up chip company, Sinchip, Singapore.
 <p></p>
 <p></p>
-- 🔭 I have intern experience in China Unicom and Oneconnect(Pingan) Financial Company.
+- 🔭 I have intern experience in China Unicom and OneConnect(Pingan) Financial Company.
 <p></p>
 <p></p>
 - 🎓 Graduated from XDU, NTU.
